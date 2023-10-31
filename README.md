@@ -24,5 +24,8 @@
 ![24](https://github.com/riskibowo/Lab_web_Praktikum-5/assets/115862112/6bb628c8-cf45-4e32-930a-fc9b1ab54b0e)
 ![25](https://github.com/riskibowo/Lab_web_Praktikum-5/assets/115862112/a7dc214f-9333-4924-9d20-406a14f5ca45)
 
+# TugasNya
+![terakhir](https://github.com/riskibowo/Lab_web_Praktikum-5/assets/115862112/6cc0b392-87a6-4a98-b4df-e16caf3f9227)
+![Screenshot (24)](https://github.com/riskibowo/Lab_web_Praktikum-5/assets/115862112/2b550b7c-0807-46e6-bf6b-c72a2bdf55ee)
 
 
