@@ -14,6 +14,15 @@
 ![14](https://github.com/riskibowo/Lab_web_Praktikum-5/assets/115862112/76540607-d990-4700-805e-977e6bf17f52)
 ![15](https://github.com/riskibowo/Lab_web_Praktikum-5/assets/115862112/5aed660b-d52c-4b64-8cc8-c74192b67eab)
 ![16](https://github.com/riskibowo/Lab_web_Praktikum-5/assets/115862112/1641f560-bb90-436f-b9ba-18cdcfb3c2a9)
+![17](https://github.com/riskibowo/Lab_web_Praktikum-5/assets/115862112/943d1a57-90f4-4ef8-b14a-b0b8e6f73a43)
+![18](https://github.com/riskibowo/Lab_web_Praktikum-5/assets/115862112/d7859d7a-2ab3-460e-ab79-4d771068993a)
+![19](https://github.com/riskibowo/Lab_web_Praktikum-5/assets/115862112/429fda7d-6f5a-4237-9599-94bbfaa71554)
+![20](https://github.com/riskibowo/Lab_web_Praktikum-5/assets/115862112/444b7534-acda-42dc-bbe8-a1bdc6b790bc)
+![21](https://github.com/riskibowo/Lab_web_Praktikum-5/assets/115862112/fd19bf80-d624-4aef-848e-9fc1862d39ec)
+![22](https://github.com/riskibowo/Lab_web_Praktikum-5/assets/115862112/c3ecf143-be17-488e-b7c3-088f60fa6e1c)
+![23](https://github.com/riskibowo/Lab_web_Praktikum-5/assets/115862112/82af915d-3d67-4f3a-868a-90364ce37fca)
+![24](https://github.com/riskibowo/Lab_web_Praktikum-5/assets/115862112/6bb628c8-cf45-4e32-930a-fc9b1ab54b0e)
+![25](https://github.com/riskibowo/Lab_web_Praktikum-5/assets/115862112/a7dc214f-9333-4924-9d20-406a14f5ca45)
 
 
 
